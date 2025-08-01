@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @miramuzafar
+- 👋 Hi, I’m @miraizzatul
 - 👀 I’m interested in efficient position in game development with positive, compassionate, and like-minded people.
 - 📫 Contact me on www.linkedin.com/in/mira-izzatul or nurizzatulamiramuzafar@gmail.com
 
